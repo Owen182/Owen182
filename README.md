@@ -1,5 +1,5 @@
 # 💫 About Me:
-A physics student who loves physics
+A physics student
 
 
 ## 🌐 Socials:
